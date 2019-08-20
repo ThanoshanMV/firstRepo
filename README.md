@@ -12,3 +12,4 @@ My favorite color:
 > [BLUE]
 
 Thank you so much for reading! ☺
+See ya!
